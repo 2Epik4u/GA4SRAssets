@@ -1,3 +1,3 @@
-# Welcome To GoAnimate4SchoolsRemasteredAssets!
+# Welcome To Mega CW!
 
-Feel free to edit!
+
